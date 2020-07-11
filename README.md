@@ -8,4 +8,9 @@ Spotify Playlists
 
 
 Websites to Explore
-1. 
+1. Cooking https://www.supercook.com/#/onboarding
+2. DIY Crafts https://www.apartmenttherapy.com/
+3. Big Questions https://www.mentalfloss.com/section/big-questions
+4. CritterVision https://m.twitch.tv/crittervisionbackyard
+5. Puppies https://openpuppies.com/#lqxIBsu
+6. Pixelthoughts https://www.pixelthoughts.co/#
